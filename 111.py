@@ -1,3 +1,0 @@
-dfrytu（）
-gyjbjmnkl
-ygkjnkl
